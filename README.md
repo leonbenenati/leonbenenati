@@ -1,6 +1,6 @@
 ### Leon Emiliano Benenati - [Estudante] 👋
 
-## Sou estudante de economia e estudo ciencias de dados
+## Sou estudante de economia e estudo ciências de dados
 
 
 
