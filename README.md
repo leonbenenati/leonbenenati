@@ -1,6 +1,6 @@
 ### Leon Emiliano Benenati - [Estudante] 👋
 
-## Sou estudante de economia e estudo ciências de dados
+## Formando em Economia e cursando Ciência de dados pela UFMS
 
 
 
