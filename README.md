@@ -1,6 +1,5 @@
 ### Leon Emiliano Benenati - [Estudante] 👋
 
-## Formando em Economia e cursando Ciência de dados pela UFMS
 
 
 
